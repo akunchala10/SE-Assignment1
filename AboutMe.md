@@ -1,1 +1,1 @@
-I am Amulya Kunchala.
+I am Amulya Kunchala currently pursuing masters in computer science at Ualbany.
